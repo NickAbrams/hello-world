@@ -1,2 +1,3 @@
 # hello-world
 My personal Repository
+My name is Nick Abrams. I am going to be a billionaire by may 13 2028.  I have no doubt I will be successful.  I am the man that accomplishes these things.  I am more capable than I can ever imagine.  I committ to everything I want to do take the first step.  Jump off the deep end and I Know everything happens exactly as it has to.  I am outstanding. I can accomplish anything.  And I know what I want.  I will complete my computer Science Course by August 1st.  I will wake up at 4:15 and go to the gym everyday this week.  And double it.  2 Weeks.   Then I will create a business and a product that will improve millions of peoples lives.  I am so lucky.  I am so grateful for my life.  I am already successful.
